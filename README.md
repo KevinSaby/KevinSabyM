@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me thru my social media handles: 
-- Instagram: _just.like.kevin_
+- Instagram: @_just.like.kevin_
 - LinkedIn: Kevin Saby
 - Email: kevinsaby2003@gmail.com
 - Contact No. 9823667820
